@@ -3,7 +3,7 @@
 ## Anggota Kelompok
 1. Jelita Ayu Ressito Siregar (124140056)
 2. Dintani Metha Hamdi (124140116)
-3. Naura Aziza Nurhanifa (124140072
+3. Naura Aziza Nurhanifa (124140072)
 
 ---
 
@@ -76,4 +76,4 @@ Kelompok: Kacauww
 
 1. Jelita Ayu Ressito Siregar (124140056)
 2. Dintani Metha Hamdi (124140116)
-3. Naura Aziza Nurhanifa (124140072
+3. Naura Aziza Nurhanifa (124140072)
