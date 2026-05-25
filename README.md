@@ -1,4 +1,4 @@
-# Tubes 1 Strategi Algoritma - Kacauww
+# Tubes Strategi Algoritma - Kacauww
 
 ## Anggota Kelompok
 1. Jelita Ayu Ressito Siregar (124140056)
